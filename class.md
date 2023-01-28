@@ -1,0 +1,3 @@
+Segiru
+Nigeria
+Meta Frontend Certificate
